@@ -1,1 +1,1 @@
-# eparihara_app_ads
+google.com, pub-8974953592979927, DIRECT, f08c47fec0942fa0
